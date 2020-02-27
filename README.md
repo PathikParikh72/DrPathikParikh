@@ -1,0 +1,2 @@
+# DrPathikParikh
+Consultant Hepatologist &amp; Liver Transplant Physician MD.DM Gold Medalist Fellowship in Hepatology &amp; Liver Transplant (U.K.) Fellowship in Liver Intensive Care (U.K.)  Dr. Pathik Parikh  is the only hepatologist in gujarat to be trained Mumbai (India), London (UK), Florida (US) and Osaka (Japan)  He is the first and the only doctor to be awarded combined INASL-JSH fellowship for hepatologist
